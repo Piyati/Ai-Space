@@ -21,3 +21,7 @@ ICE Cubes AI Box and past activity scheduling plans to create a
 recommendation system. That can recommend a personalized
 schedule of activities and can help reduce the risk of mental
 health problems for those working on space missions.
+
+
+
+watch vdo >> https://youtu.be/_0-2tUe0g4U
